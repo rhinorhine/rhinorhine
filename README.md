@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @rhinorhine
 - 👀 I’m interested in ...Milan Kundera Borges Calvino Haruki Murakami
-- 🌱 I’m currently learning ...Socialogy
+- 🌱 I’m currently learning ...Sociology
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
